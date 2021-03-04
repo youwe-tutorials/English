@@ -28,10 +28,9 @@
 
 
 -  **Remember!**
-  * Show that you are interested in the questions the examiner asks you.
+  - Show that you are interested in the questions the examiner asks you.
 
-  - Show that you are willing to communicate.
-This kind of positive communication leaves a good impression on the examiner.
+  - Show that you are willing to communicate. This kind of positive communication leaves a good impression on the examiner.
 
 - **Note**
   - In Part 1 of the Speaking test, the examiner is assessing your ability to communicate accurately and fluently. You should also make sure that your answers are relevant to the question.
@@ -43,5 +42,3 @@ This kind of positive communication leaves a good impression on the examiner.
   - Answers with two or three sentences are more effective than a simple yes/no.
   - Make sure your answers are relevant to the questions.
   - Don’t be afraid to correct yourself if you make a mistake.  
-
-  
