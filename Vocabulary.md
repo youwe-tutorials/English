@@ -7,3 +7,16 @@
 - **dire**: extremely serious or urgent
 - **deter**: prevent the occurrence of/discourage (someone) from doing something  
 - **imitate** - take or follow as a model.
+- **prompt reply** - quick reply
+- **swift** - easy/smooth (swift exchange)
+- **disappointment**
+- **error** - mistake
+- **great deal of time** - lot of time
+- **I look forward to hearing from you soon**
+- **embossed** - printed
+- **whereabouts** - enquiries about the whereabouts
+- **I am writing to express my ..**
+- **immediate** - quick/soon
+- **came to light** - came to notice
+- **carousel** - marry-go-round / a continuous revolving device for item delivery. (After collecting his suitcase at the baggage **carousel**, he left the airport)
+- **delighted to hear** - happy to hear / glad to hear
